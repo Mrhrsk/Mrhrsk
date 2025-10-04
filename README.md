@@ -2,7 +2,7 @@
 NIS PHMD Oral
 12th Grade
 7.0 IELTS
-____ SAT
+1440 SAT
 5.0 GPA
 
 
